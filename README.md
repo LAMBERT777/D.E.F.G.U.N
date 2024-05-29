@@ -1,2 +1,2 @@
-# Ultimate fear
+# Ultimate fear.
 Источник безгроничных возможностей...
